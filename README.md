@@ -1,3 +1,3 @@
 # lkshh.slays
-remote devops developer
-public learning
+✨ remote devops developer
+
